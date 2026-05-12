@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare ftx trading bot Algorithm | auto-leverage + isolated-margin, the #1 ftx trading bot. Includes auto-leverage and isolated-margin for a smoother and
 
 
 
